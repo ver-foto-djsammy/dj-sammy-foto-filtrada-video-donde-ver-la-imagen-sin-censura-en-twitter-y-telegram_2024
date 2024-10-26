@@ -1,11 +1,18 @@
 # VER-dj-sammy-foto-filtrada-video-donde-ver-la-imagen-sin-censura-en-twitter-y-telegram_2024
 
-Actualmente Dj Sammy, o conocido por su nombre real como The Greatest, está sumergido en una fuerte polémica, después que se filtraran fotos y videos explícitos del dominicano en redes sociales, especialmente en Telegram y Twitter (ahora X), donde se muestra en situaciones comprometedoras.
+
+📺📱👉◄◄🔴  https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴  https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴  https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴  https://tinyurl.com/3namhbm4
+
 
 La foto en contexto muestra una parte intima del musico, lo que está provocando una oleada de reacciones y búsquedas en las plataformas sociales, además ha provocado comentarios en programas de entretenimiento dominicanos como Sin Filtro y en el canal conocido como ElCallejon809.
 
-En redes sociales comenzaron a circular supuestas afirmaciones de la reconocida influencer Alexandra MVP, quien mantiene una estrecha relación con Dj Sammy: "sácale provecho a lo bueno y a lo malo, tú lo que haces es que te creas tu foto te creas un OnlyFans, no puedes hacer nada", se puede leer en una publicación del canal del ElCallejon809.
-
+j
 La foto de Dj Sammy comenzó a circular en internet después que un usuario desconocido la compartiera en la red. Foto: Twitter
 Aunque el artista "The Greaatest" no ha abordado la situación de manera pública, en un post de una historia de Instagram hizo un comentario acompañado de una fotografía: "blanquito, bonitillo, simpático, educado, soltero, hagan su dili", se puede leer en la imagen.
 
